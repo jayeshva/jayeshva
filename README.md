@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @jayeshva
 - 👀 Tech Enthusiast
-- 🌱 I’m currently pursuing my Bachelors degree on Computer Science and Engineering
 - 📫 You can reach me through "jayesh007va@gmail.com"
